@@ -1,5 +1,7 @@
 # Bad luck for you all my repos are private 😓
 
+![Monty Python](https://www.bundlen.com/wp-content/uploads/2023/03/Whats-the-Difference-Between-UX-Design-vs.-UI-Design_@3x-1-scaled-1.jpg)
+
 <p>&nbsp;<img align="center" src="https://readmestats.999857.xyz/api?username=LilaLio&show_icons=true&locale=en&theme=tokyonight" alt="LilaLio" /></p>
 
 ## 🔨 Languages & Frameworks & Skills ⭐️:
